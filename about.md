@@ -21,3 +21,6 @@ Faster Growth – Easier to move into leadership or start your own projects.
 ## what
 
 TEA is online, flexible and help cutting the big Barrier of instant funding be learning and certification. What is more there is career guide after the programe. i am convinced that nothing can be this beeter and remain true.
+
+## Contact
+my name is Samson O. Imhenisi-ikotu. my mobile is +2348134981025.  whatsapp +2348134981025,  email ossysamson@gmail.com
