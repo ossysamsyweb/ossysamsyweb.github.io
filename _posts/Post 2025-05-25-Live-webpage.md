@@ -14,4 +14,4 @@ This post is meant to summarize some of the key concepts I have learned from app
 3. I renamed the forked repository ossysamsy.github.io
 4. I edited the files as described in the README.md
 5. Now I am writing my first post by following the advice that I got from the README file
-6. thank you TEA, thank you Datamaunz.
+6. thank you TEA, thank you Bruno, thank you Datamaunz.
